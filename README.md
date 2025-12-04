@@ -35,7 +35,7 @@ This work is a novel approach for detecting duplicate records in the context of 
 
 **You Can use this Beautiful Project for your college Project and get good marks too.**
 
-Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
+Email me Now ** s23_gudwe_piyush@mgmcen.ac.in** to get this Full Project Code, PPT, Report, Synopsis, Video Presentation and Research paper of this Project.
 
 💌 Feel free to contact me for any kind of help on any projects.
 
@@ -43,15 +43,6 @@ Email me Now **vatshayan007@gmail.com** to get this Full Project Code, PPT, Repo
 
 ## How to Reach me :
 
-### Mail : vatshayan007@gmail.com 
+### Mail : s23_gudwe_piyush@mgmcen.ac.in
 
-### WhatsApp: **+91 9310631437** (Helping 24*7) **[CHAT](https://wa.me/message/CHWN2AHCPMAZK1)** 
-
-### Website : https://www.finalproject.in/
-
-### 1000 Computer Science Projects : https://www.computer-science-project.in/
-
-### New CSE Project : [Rainfall Prediction Project](https://github.com/Vatshayan/B.tech-Project-Rainfall-Predication-in-India)
-
-### Youtube Explanation : https://www.youtube.com/watch?v=_b_7sjDpuC0
-
+### WhatsApp: **+91 7775060898** (Helping 24*7) **[CHAT](** https://wa.me/qr/cl426WVHLESEF1
